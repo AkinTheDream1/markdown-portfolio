@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+! [Cheesy Motivational Post] (https://cdn-0.therandomvibez.com/wp-content/uploads/2019/09/Rise-and-Grind.jpg)
