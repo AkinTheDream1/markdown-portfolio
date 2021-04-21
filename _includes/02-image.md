@@ -1,1 +1,1 @@
-! [Cheesy Motivational Post] (https://cdn-0.therandomvibez.com/wp-content/uploads/2019/09/Rise-and-Grind.jpg)
+( ![Cheesy Motivational Post] (https://images-na.ssl-images-amazon.com/images/I/51p9lGUDO7L._AC_SX466_.jpg) )
